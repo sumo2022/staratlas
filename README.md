@@ -15,3 +15,5 @@ Satoshi, the chosen one, stepped forward, unlocking the true power of the emeral
 The Staratlas had succeeded in their quest, forever etching their names in the annals of blockchain history. They became legends themselves, inspiring a new generation of crypto warriors to challenge the status quo and forge a path toward a more equitable future.
 
 And so, in the game of Staratlas, players could relive this epic tale, fighting alongside the Staratlas, exploring the depths of decentralized finance, and discovering the power of crypto that lay within their grasp. The adventure awaited, and the possibilities were endless in the world of Staratlas.
+
+Lets play.
